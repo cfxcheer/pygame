@@ -1,1 +1,2 @@
-´úÂë»ùÓÚpython3.6
+pygameé£žæœºå°æ¸¸æˆ
+
